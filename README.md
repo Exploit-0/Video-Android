@@ -2,19 +2,20 @@
 A Video Sharing Platform Because YouTube And LBRY Succs. Easy Monitization, We don't have Annoying ToS Like Discord Does!, We won't track you at all, We don't have Mysterious Filters or report bots like YT Does.
 
 # Do you know how to Code?
-Come Talk and Code with us(only me currently 😕)! We want collabrators.
-UI/UX Does the job too!
-(Contact me Via Discord, send a fr Exploit#2154)
+Come Talk and Code with us! We want collabrators.
+UI/UX Does the job too! (https://discord.gg/95z8G7S)
 
 # Are you a content creator and was denied by YT?
 Share you're experience or Feedback on other Video Sharing Platform's
-we will try to stop the samething happening on our Platform.
-(Contact me Via Discord, send a fr Exploit#2154)
+we will try to stop the samething happening on our Platform. (https://discord.gg/95z8G7S)
 
 # Have any Great idea that you want to be included on our App?
-Share it lol
-(Contact me Via Discord, send a fr Exploit#2154)
+Share it lol (https://discord.gg/95z8G7S)
 We dont have a name for our app BTW! Can you suggest one?
 
 # Today's Progress
-![22 October's Progress](https://i.ibb.co/PgkYDB1/Screenshot-2020-10-22-at-9-19-54-PM.png)
+[![23 OCT 2020](https://i.postimg.cc/nhVcHm4D/Screenshot-2020-10-23-at-1-23-24-PM.png)](https://postimg.cc/QHPrmHn8)
+
+# Discord Server(Support, Contribution Chat, Community, Developers, Ideas...)
+invite: https://discord.gg/95z8G7S
+
