@@ -17,4 +17,4 @@ Share it lol
 We dont have a name for our app BTW! Can you suggest one?
 
 # Today's Progress
-![22 October's Progress](https://i.ibb.co/PgkYDB1/Screenshot-2020-10-22-at-9-19-54-PM.png)
+![24 October's Progress](https://i.ibb.co/mzb2LBR/Screenshot-2020-10-24-at-8-46-50-PM.png)
